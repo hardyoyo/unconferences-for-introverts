@@ -1,0 +1,9 @@
+## Introvert-Unfriendly Practices
+
+I attended an unconference once that ended with the usual, "We'd like more people to speak up" followed by "if you don't have something to contribute perhaps this isn't the conference for you." I left that conference feeling like "Yes, that isn't the unconference for me." This is a shame, I think, because it was my first time attending and often it takes me a while to warm up to a new idea/setting (which I think is an introvert trait).
+
+Let me relate with a story from my youth. In an early elementary school class, there was a teacher who had the kids jump over a candlestick (Jack be nimble style). The story, from my mom, goes that I said, very politely: "No thank you." My mom then loves telling that the teacher grabbed my hand and made me jump over. Where she sees in that story a successful life lesson, I see a tendency of mine to want to understand a situation before I act. I wanted to process it before leaping into action.
+
+I believe, based on other experiences in my life that, given time, I would have jumped over that candle myself. It may not have been the first time the class did it, but it would have happened (I've benefitted greatly in life from taking a leap/chance when I was ready, and perhaps sometimes I've missed opportunities because I wasn't, but that's a part of who I am). This is relevant to unconferences because every unconference (and by this I mean from a particular organizer, not necessarily every individual unconference) is different. It may take introverts time to assess the situation and feel at home in the new context. They may need to attend several times before feeling like they want to speak up.
+
+For me, that's okay. It may not be for some unconference organizers. It may not fit with their mental model of what an unconference should be.
